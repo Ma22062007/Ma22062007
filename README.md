@@ -1,5 +1,5 @@
-## vamo trabalhar
-## vai toma no nariz
+## Boas vindas ao meu perfil 💙💙
+Meu nome é ari e eu não to nem ai
 
 <!--
 **Ma22062007/Ma22062007** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
