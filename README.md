@@ -1,4 +1,5 @@
-## isso ai é falta de trabalha 👋
+## vamo trabalhar
+## vai toma no nariz
 
 <!--
 **Ma22062007/Ma22062007** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
